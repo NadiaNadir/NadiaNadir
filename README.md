@@ -1,11 +1,10 @@
 - 👋 Hi, I’m @NadiaNadir
 - 👀 I’m interested in BLOCKCHAIN
-- 🌱 I’m currently learning FINTECH from University of Miami.
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me 
-My LinkedIn :  https://www.linkedin.com/in/nadianadir/
-My INSTAGRAM: https://www.instagram.com/nadianadir_art/
-My FACEBOOK: https://www.facebook.com/nadiaandnadir
+- 🌱 Founder DIGINAD | Director of Digital Strategy N2N SOLUTIONS | SM Partner ITCN ASIA | IT Graduate | PMP | Entrepreneur | Artist | Astrophile☄
+- 📫 How to reach me: https://www.nadianadir.com/ 
+My LinkedIn: https://www.linkedin.com/in/nadianadir/
+My INSTAGRAM: https://www.instagram.com/nadianadir.studio/
+My FACEBOOK: https://www.facebook.com/nadianadir.studio/
 
 
 <!---
